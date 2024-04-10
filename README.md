@@ -1,1 +1,1 @@
-bit.ly/OS20Q
+http://lnkiy.in/masspractical
